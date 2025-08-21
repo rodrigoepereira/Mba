@@ -7,4 +7,4 @@ fazendo dashboard não fico rico!!!
 nunca mesmo
 um dia pretendo tentar discutir tentar!!!
 bora ver um jogo!!!
-
+computador está lento
